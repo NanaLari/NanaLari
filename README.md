@@ -1,4 +1,4 @@
-## oii bem vindos!<3
+## oii bem vindos!✨🎧
 
 sou estudante de pensamento computacional 
 
