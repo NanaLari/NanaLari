@@ -1,4 +1,4 @@
-### Hi there 👋
+oii bem vindos!<3
 
-sou estudante de pensamento computacional
--->
+sou estudante de pensamento computacional 
+
